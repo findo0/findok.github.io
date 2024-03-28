@@ -1,1 +1,0 @@
-# findok.github.io
